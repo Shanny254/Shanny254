@@ -6,7 +6,7 @@
   
 - 💞️ I’m looking to collaborate on exciting data projects where I can contribute my passion for analysis and eagerness to learn alongside experienced professionals.
   
-- 📫 How to reach me: Feel free to connect with me on LinkedIn [(https://www.linkedin.com/in/sharlyne-nyaboke-427655262/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BNfLRx10fTQ%2B9bxkpacmorQ%3D%3D)]  or drop me an email at [sharlynenyaboke@gmail.com].
+- 📫 How to reach me: Feel free to connect with me on LinkedIn or drop me an email at sharlynenyaboke@gmail.com.
 
 - 😄 Pronouns: She/Her
 
